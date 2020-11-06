@@ -1,2 +1,2 @@
 # discord
-discordoooo0o0
+negro
